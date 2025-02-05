@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[Shantanu Pandey ](https://www.linkedin.com/in/lucky-joy-tutika/)(LinkedIn)</a>
+- <a>[Lucky Joy](https://www.linkedin.com/in/lucky-joy-tutika/)(LinkedIn)</a>
 - Email: luckyjoytutika@gmail.com
